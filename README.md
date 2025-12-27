@@ -1,2 +1,2 @@
 # Agent-Solo01
-This is the first repository that I build.
+Hello 👋 I am Kutay İzidoğru and this is the first repository that I build . I am currently living in  Turkey and I am 24 years old , my main goal is to build, launch and sell high problem solving , high demanding, high value products,services and systems for different size and kind  of Businesses,Companies, Enterprises, Agencies etc.globally . You know that nothing has been achieved with just one person so I need eventually a great Team that wants to share and support my vision .
